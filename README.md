@@ -15,6 +15,6 @@
   </details>
 
 > Sepesial Bulan ramadhan >_< + 1000 Subscribe
-
+• Link Key : https://bit.ly/Download_Key_Shortlink
 [![](https://img.shields.io/static/v1?logo=youtube&label=subscribe&message=XENZI%20GANZ&color=green)](https://youtube.com/channel/UC7ygjAbDjuiN76PqOlJm40A)
 [![](https://img.shields.io/static/v1?logo=youtube&label=subscribe&message=XENZI%20GANZZ&color=green)](https://youtube.com/channel/UCJWq5Rw5C5JbJeY0xXR_kWQ)
